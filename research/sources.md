@@ -60,5 +60,5 @@
 
 10. Jori Ford
     - https://www.linkedin.com/in/chicagoseopro/
-    - https://youtu.be/sQk5AEKDyhU (Used in transcript)
+    - https://youtu.be/hQRG5DwnOA4 (Used in transcript)
     - Co-founder of Octopus Labs, a company focused on technical SEO optimization.
