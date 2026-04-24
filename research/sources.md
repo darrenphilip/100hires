@@ -10,6 +10,7 @@
 
 2. Nathan Gotch 
     - https://nathangotch.com/
+    - https://www.linkedin.com/in/nathangotch/
     - https://www.youtube.com/@nathangotch 
     - https://youtu.be/LOLzw_ZkoIc (Used in transcript)
     - Co-founder of Rankability, founder of Search OS, and author of AI SEO For Dummies 
